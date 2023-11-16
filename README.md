@@ -1,4 +1,4 @@
-### Hi there 👋
+### hoe dicher bij de nul hoe strakker bij de nul
 
 <!--
 **ProfessorNether/ProfessorNether** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
