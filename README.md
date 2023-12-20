@@ -1,4 +1,4 @@
-### hoe dicher bij de nul hoe strakker bij de nul
+### soms is altijd ten eerste van het veleden, dus was het inderdaad zo
 
 <!--
 **ProfessorNether/ProfessorNether** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
